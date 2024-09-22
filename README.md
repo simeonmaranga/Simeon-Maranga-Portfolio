@@ -1,5 +1,5 @@
 # SIMEON MARANGA
-[Maranga](/images/Maranga.PNG?raw=true)
+[Maranga](images/Maranga.PNG?raw=true)
 ## COMMUNICATIONS MANAGER - COMMUNICATION DEVELOPMENT & ADVOCACY
 
 ## KEY COMPETENCIES
