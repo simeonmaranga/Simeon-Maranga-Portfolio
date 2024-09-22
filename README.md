@@ -47,33 +47,54 @@
 
 ### Core Accomplishments:
 »	Developed project-specific plans; by ensuring stakeholders informed, garnering of support, addressing concerns, increasing visibility and developing core tailored messages.
-»	Trained project leads on case study development to recognize which cases are most representative of success and impact. While also educated project leads on how to capture key moments that demonstrate impact, such as beneficiary interactions, community activities, and before-and-after visual transformations.
-»	Coordinated the process of identifying, documenting, and disseminating most significant change stories, and promising best practices using various multimedia platforms. 
-»	Captured ongoing activities and development for sharing in diverse offline and online publications including the organizations’ digital media channels. 
-»	Developed and implemented a crisis communication policy, providing annual refresher training to all staff to ensure readiness in crisis situations.
-»	Conducted peer-to-peer research interviews on care leavers in Nairobi and Garissa Counties. 
-»	Sent monthly newsletters through Mailchimp and updated the mailing list weekly. 
-»	Conducted Focused group discussions in Nairobi County on the experience of care leavers. 
-»	Transcribed recorded audio files. 
-»	Presented findings of the research to the UNICEF team in Kenya, government representatives, and care leavers from different institutions and organizations that advocate for care reform. 
-»	Proofread the final report before its launch and submission to the UNICEF team. 
-»	Set up Zoom calls, sent out invites to participants, collated PowerPoint presentations, joined webinars, resolved any technical issues, and supported any interpretation during webinars. 
-»	Helped to organize video interviews such as contacting those being interviewed to arrange times and liaised with the production company. 
-»	Set up calls and support the layout of monthly updates based on the template provided by the designer. 
-»	Maintained database of participants and dissemination of publications. 
-»	Managed publication policy papers (e.g., review designed drafts to identify errors, liaise with publications company). 
-»	Wrote, edited, and arranged the production of newsletters, annual reports, and sector briefs. 
-»	Oversaw production of visual material, including website and social media management. 
 
+»	Trained project leads on case study development to recognize which cases are most representative of success and impact. While also educated project leads on how to capture key moments that demonstrate impact, such as beneficiary interactions, community activities, and before-and-after visual transformations.
+
+»	Coordinated the process of identifying, documenting, and disseminating most significant change stories, and promising best practices using various multimedia platforms. 
+
+»	Captured ongoing activities and development for sharing in diverse offline and online publications including the organizations’ digital media channels. 
+
+»	Developed and implemented a crisis communication policy, providing annual refresher training to all staff to ensure readiness in crisis situations.
+
+»	Conducted peer-to-peer research interviews on care leavers in Nairobi and Garissa Counties. 
+
+»	Sent monthly newsletters through Mailchimp and updated the mailing list weekly. 
+
+»	Conducted Focused group discussions in Nairobi County on the experience of care leavers. 
+
+»	Transcribed recorded audio files. 
+
+»	Presented findings of the research to the UNICEF team in Kenya, government representatives, and care leavers from different institutions and organizations that advocate for care reform. 
+
+»	Proofread the final report before its launch and submission to the UNICEF team. 
+
+»	Set up Zoom calls, sent out invites to participants, collated PowerPoint presentations, joined webinars, resolved any technical issues, and supported any interpretation during webinars. 
+
+»	Helped to organize video interviews such as contacting those being interviewed to arrange times and liaised with the production company. 
+
+»	Set up calls and support the layout of monthly updates based on the template provided by the designer.
+
+»	Maintained database of participants and dissemination of publications. 
+
+»	Managed publication policy papers (e.g., review designed drafts to identify errors, liaise with publications company). 
+
+»	Wrote, edited, and arranged the production of newsletters, annual reports, and sector briefs. 
+
+»	Oversaw production of visual material, including website and social media management. 
 
 ## COMMUNICATION & MARKETING OFFICER	JANUARY 2019 – DECEMEMBER 2019
 ## ATTAIN ENTREPRISE SOLUTIONS 
-Developed and implemented communication strategies for IT projects, creating technical content such as white papers and case studies to promote solutions and innovations. Managed social media platforms, increasing engagement, and produced press releases to boost brand visibility. I organized webinars, product launches, and IT conferences, collaborating with the marketing team on integrated digital campaigns. 
-Core Accomplishments:
+*Developed and implemented communication strategies for IT projects, creating technical content such as white papers and case studies to promote solutions and innovations. Managed social media platforms, increasing engagement, and produced press releases to boost brand visibility. I organized webinars, product launches, and IT conferences, collaborating with the marketing team on integrated digital campaigns.*
+
+### Core Accomplishments:
 »	Developed and implemented internal and external communication strategies to support IT projects and services.
+
 »	Created technical content, white papers, case studies, and newsletters to promote IT solutions and innovations.
+
 »	Managed the company’s social media platforms (LinkedIn, Twitter, Facebook), increasing online engagement by 60%.
+
 »	Produced press releases, media kits, and handled media relations to boost the company's brand in the tech industry.
+
 »	Organized and promoted webinars, product launches, and IT conferences, resulting in 60% increase in attendees and increased brand visibility.
 »	Collaborated with the marketing team to deliver integrated digital campaigns, including email marketing and SEO strategies.
 »	Conducted market research and analyzed data to optimize communication strategies and measure campaign performance.
