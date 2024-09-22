@@ -106,7 +106,7 @@ Bachelor of Science in Electrical & Telecommunications Engineering – Multimedi
 Kenya Certificate of Secondary Education, KCSE | St Joseph’s Boys High School | 2009 - 2012. 
 
 ## PERSONAL INFORMATION
-Languages: English (Fluent) | Swahili (Native) 
+Languages: English (Fluent) | Swahili (Native) | French (Basic)
 
 
 
