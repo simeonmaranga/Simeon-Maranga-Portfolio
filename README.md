@@ -2,27 +2,44 @@
 ## COMMUNICATIONS MANAGER - COMMUNICATION DEVELOPMENT & ADVOCACY
 
 ## KEY COMPETENCIES
+*Integrated Communications Programs | Corporate Branding | Professional Photography & Videography | Content Strategy | Content Editing | Social Media Campaigns | Communications Programs | Crisis Communication | Digital Strategies | Special Event Coordination | Integrated Campaigns | Media Releases and Briefings | Graphic Design using Adobe Suite.*
 ## TECHNICAL SKILLS IN COMMUNICATION TOOLS 
+*Adobe Creative Suite| WordPress| Canva | MailChimp |Google Analytics |Facebook Insights| X analytics |Zoom | WebEx| Google Meet| Microsoft Teams| Slack |Trello | Google forms | Type Form| Google Drive| One box | Dropbox | PowerBI | Salesforce |SharePoint |Microsoft Office Suite*
 
 ## COMMUNICATIONS MANAGER - BUCKNER KENYA - JANUARY 2023 -TODATE
 *Successfully planned and implemented communication strategies for both internal and external audiences, while leading social media campaigns across platforms like Instagram, Twitter, Facebook, LinkedIn, and YouTube. Enhances service delivery through innovative photography and videography producing short documentaries to highlight the organization's impact gathering and publishing inspiring program stories through interviews and managed public relations activities, including press releases and events.*
 
 ### Core Accomplishments:
 »	Planning, delivering, and evaluating communication strategy to achieve effective communication both internally and externally.
+
 »	Led a team of communication officers in developing and executing communication strategies, improving organizational visibility and public image. 
+
 »	Supporting fundraising efforts by creating compelling communication materials for campaigns and donor engagement, boosting fundraising success.
+
 »	Coordinating staff training on communication strategies, media engagement, and brand guidelines, empowering senior managers and staff to effectively represent the organization in public forums.
+
 »	Improving and implementing crisis communication policy; assessing risks, developing a crisis communication team and developing key messaging and protocols.
+
 »	Creating persuasive promotional materials like calendars, annual magazines, certificates, T-shirts, books, and flyers that build and portray the organization’s brand. 
+
 »	Improving the quality of photos and videos produced by applying in-depth knowledge of quality principles and visual product documentation techniques in various projects across the country using professional cameras, Adobe Photoshop, and Adobe Lightroom. 
+
 »	Collaborating with advocacy, donor relations, and other teams to engage stakeholders, including donors, volunteers, government agencies, and media, generating increased support and advocacy for the organization’s initiatives.
+
 »	Gathering impactful and inspiring stories from Buckner Kenya programs in Kitale, Cherang’any, Busia, Bungoma, and Nairobi for publication on the website, social media pages, and magazine. This process includes interviewing children, teachers, family coaching clients, social workers, volunteers and managers to get balanced and interesting program stories. 
+
 »	Proofreading success stories and submitting them to program partners and donors based in the United States. 
+
 »	Managing and coordinating all public and media relations activities including press releases, events, publications, and campaigns and maintaining strong media relations for positive coverage. 
+
 »	Formulating social media campaigns, ads, etc. across all platforms: Instagram, Twitter, Facebook, LinkedIn, and YouTube.
+
 »	Recording and editing short documentaries for the organization, guided by a shooting script. 
+
 »	Collaborating with partners and stakeholders to develop joint content and campaigns. 
-»	Adopting creative and modern photography ideas to improve service delivery and meet/exceed expectations. 
+
+»	Adopting creative and modern photography ideas to improve service delivery and meet/exceed expectations.
+
 
 ## COMMUNICATION COORDINATOR 	                                                 JANUARY 2020 - DECEMEBER 2022
 ## CHILD FRONTIERS 
