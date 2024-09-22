@@ -12,7 +12,7 @@ title                    : "Maranga"
 title_separator          : "-"
 name                     : &name "Your Name"
 description              : &description "personal description"
-url                      : https://github.com/simeonmaranga/Simeon-Maranga-Portfolio/settings/pages
+url                      :https://simeonmaranga.github.io/Simeon-Maranga-Portfolio/
 baseurl                  : "" # the subpath of your site, e.g. "/blog"
 repository               : "simeonmaranga/Simeon-Maranga-Portfolio.io"
 
