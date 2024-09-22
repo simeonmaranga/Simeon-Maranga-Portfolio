@@ -1,6 +1,6 @@
 # SIMEON MARANGA
 ![Maranga](https://github.com/simeonmaranga/portfolio/blob/main/images/Maranga.PNG)
-[Download PDF]([how to link a pdf in github repository to github pages](https://github.com/simeonmaranga/Simeon-Maranga-Portfolio/blob/main/images/Simeon%20Maranga%20-%20Resume.pdf))
+[Download PDF](https://github.com/simeonmaranga/Simeon-Maranga-Portfolio/blob/main/images/Simeon%20Maranga%20-%20Resume.pdf))
 ## COMMUNICATIONS MANAGER - COMMUNICATION DEVELOPMENT & ADVOCACY
 
 ## KEY COMPETENCIES
